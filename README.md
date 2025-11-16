@@ -30,12 +30,17 @@ GenreImg (Pixiv, Img, etc.) Simliar to Deviantart.
 
 Vidfan (Video streaming service) Simliar to the infamous company of Youtube owned by Google.
 
-Fanlogix (Twitter [X]/Instagram) This will allowed NSFW .
+Fanlogix (Twitter [X]/Instagram) This will allowed NSFW.
 
 FanPixies (Pixiv, Deviantart, etc.) 
 
 Meditalk (Tiktok, Facebook, Reddit) No support TItok, It puts lifes into mental health.
 
 The list goes on that will be shown on Release Date as we continue to work on it as possible, It could avoid significant risk of a possible spy against the malware.
+
+We also gonna be adding to this, Simliar to Wplace which by the way, It can released, submit, upload, create, draw, program and make any random stuff you all want! This compares to Google Maps as it is most likely by the world, Look
+around for any certain buildings, hotels (Lodge, Hut) [LGBTQ/Gay], motels, shops, home/house, apartment, restaurants, supermarkets, hosptials, Cafe store, Botanic Garden, Cemetery, Bar club, Warehouse, Cinema place, Museum, Camping area, Walk track, schools, Train Stations, Gas Stations, parks, mountains, lakes (river, sea), Island, Chruchs, forest, town centre national park, highway road, expressway (motorway/interstate), beach (seaside), Golf club course, Sports and Event Centre, Public toliets, Events, University, Tourist Attraction (Gays and LGBTQs only allowed), Gay entertainment place, Airport, Regional Park, Fast Food place And Cuisine.
+
+We'll added on some new cool features for videos, images, games & musics which will put into the results supporting Animations, GIFs, Submitted games, Memes, clips, etc. See you in the next update Buddy!
 
 2025/2026 Copyright all reserved
