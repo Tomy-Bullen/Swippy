@@ -43,4 +43,6 @@ around for any certain buildings, hotels (Lodge, Hut) [LGBTQ/Gay], motels, shops
 
 We'll added on some new cool features for videos, images, games & musics which will put into the results supporting Animations, GIFs, Submitted games, Memes, clips, etc. See you in the next update Buddy!
 
+Visit the Beta website to view it here: https://swippy.pages.dev/
+
 2025/2026 Copyright all reserved
